@@ -1,4 +1,4 @@
-
+Experience hypershot like never before with professional Script for hypershot, the #1 Script. Includes teleport and one-hit kill for unbeatable
 
 
 
